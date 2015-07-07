@@ -6,7 +6,7 @@ Bradley James Bouley
 
 ###What is your favorite color?
 
-Your answer goes here
+Purple
 
 ###Cats or Dogs?
 
