@@ -14,7 +14,7 @@ Both
 
 ###What would constitute a “perfect” day for you?
 
-Your answer goes here
+One where I don't have to do anything
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
