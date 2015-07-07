@@ -10,7 +10,7 @@ Purple
 
 ###Cats or Dogs?
 
-Your answer goes here
+Both
 
 ###What would constitute a “perfect” day for you?
 
